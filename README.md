@@ -2,7 +2,7 @@
 
 Email: ldanik99@mail.ru
 
-Phone: +7 89087025964
+Phone: +7 9087025964
 
 ## ***Professional Title:*** ##
 
